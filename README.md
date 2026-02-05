@@ -1,8 +1,8 @@
- ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ![image alt](https://github.com/fqxxie/fqxxie/blob/main/download%20(6).jpeg?raw=true)
+ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ![image alt](https://github.com/fqxxie/fqxxie/blob/main/download%20(6).jpeg?raw=true)
 
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀  *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚
 
- ⊱  ۫ ׅ ✧ *Hey! i'm foxie aka flynn! i go by Any/All pronouns cuz idgaf and i'm a traditional artist!
+ ⊱  ۫ ׅ ✧ *Hey! i'm foxie aka flynn! i go by Any/All pronouns cuz idgaf and i'm a traditional artist! And as well i'm a Kemonomimi of a fox!
  ⟢ Also i'm a MINOR!! (under 18) So DO NOT BE WEIRD ok?!?
  ⟢ I'm very much into roblox :3!! 
  ⟢ Pls be nice to me since i don't want any negativity from ppl!
