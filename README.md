@@ -3,4 +3,4 @@
 
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚
 
-(Your Link Here)[https://fqxxie.atabook.org/]
+ ⊱  ۫ ׅ ✧ ⠀ ⠀ ⠀ ⠀ ⠀*hey i'm foxie! u can also call me flynn :3, i'm into roblox games like 4saken, WAAPP, Phighting!, Psychological horror games, and many more! i'm also into minecraft! and i also like anime! such as JJK (Jujutsu Kaisen), CSM (Chainsaw Man), Gachiakuta and DR.Stone! I also Play FNF (Friday Night Funkin')*
