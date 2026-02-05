@@ -1,9 +1,9 @@
  ⠀ ⠀ ⠀ ⠀  ⠀  ![image alt](https://github.com/fqxxie/fqxxie/blob/main/download%20(6).jpeg?raw=true)
 
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⊹₊˚‧︵‿₊୨ 🍕 ୧₊‿︵‧˚₊⊹
-## ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀⠀*ੈ✩ A lil about me !!* 
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
+## ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀⠀♯ ⸝⸝ ꒰ A lil about me !! ꒱* 
 
- ⊱  ۫ ׅ ✧ *Hey! i'm foxie aka flynn! i go by Any/All pronouns cuz idgaf (buuut i do prefer they/him tho) and i'm a traditional artist! And as well i'm a Kemonomimi of a fox!
+ ⊱  ۫ ׅ ✧ *Hey! i'm foxie aka flynn! i go by Any/All pronouns cuz idgaf (but i do prefer they/him tho) and i'm a traditional artist! And as well i'm a Kemonomimi of a fox! i'm also a **heavy Elliot kinner** (especially the WAAPP one but frskn one too ig..)
  ⟢ Also i'm a MINOR!! (under 18) So **DON'T** BE WEIRD ok?!?
  ⟢ I'm very much into roblox :3!! 
  ⟢ And i'm also an ispiring voice actor! i'm voicing my own projects and my friends' projects currently :D
