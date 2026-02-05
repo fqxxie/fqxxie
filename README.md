@@ -1,6 +1,22 @@
+ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ![image alt](https://github.com/fqxxie/fqxxie/blob/main/download%20(6).jpeg?raw=true)
 
-![image alt](https://github.com/fqxxie/fqxxie/blob/41099d8d40be938c468eb93ece93fc83aabe0fa1/a1bb56a0a9062903560b9a92de272c20.jpg)
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚
 
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚
+ ⊱  ۫ ׅ ✧ *Hey! i'm foxie aka flynn! i go by Any/All pronouns cuz idgaf and i'm a traditional artist!
+ ⟢ Also i'm a MINOR!! (under 18) So DO NOT BE WEIRD ok?!?
+ ⟢ I'm very much into roblox :3!! 
+ ⟢ Pls be nice to me since i don't want any negativity from ppl!
+ ⟢ Pls try to use tonetags when you talk to me i'm kind of slow!
+ ⟢ Don't say anything sexual about me (even if it's a joke) but romantic jokes are okay ^^*
 
- ⊱  ۫ ׅ ✧ ⠀ ⠀ ⠀ ⠀ ⠀*hey i'm foxie! u can also call me flynn :3, i'm into roblox games like 4saken, WAAPP, Phighting!, Psychological horror games, and many more! i'm also into minecraft! and i also like anime! such as JJK (Jujutsu Kaisen), CSM (Chainsaw Man), Gachiakuta and DR.Stone! I also Play FNF (Friday Night Funkin')*
+
+ ── .✦ *Fandoms I'm in* : 
+ 𓂅 4saken
+ 𓂅 PHIGHTING!
+ 𓂅 Psychological horror games (mostly hwwhp, bad things, drawn out & paul's journey)
+ 𓂅 JJK
+ 𓂅 CSM
+ 𓂅 Gachiakuta
+ 𓂅 DR.Stone and uhh maybe more i dunno i'm kinda slow..
+
+ Alsooo go follow me on tiktok!! my user on there is : @flynnthatepicguy, go follow me and support me there cuz i post my art :D!! As well my dscrd is @mythicalidiot go friend me! i'm always up to chat if you want! (BUUUUT be aware of timezones cuz vro i live in fucking madagascar 💔 YES IM FR I LIVE THERE)
