@@ -1,4 +1,4 @@
- ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ![image alt](https://github.com/fqxxie/fqxxie/blob/main/download%20(6).jpeg?raw=true)
+ ⠀ ⠀ ⠀ ⠀  ⠀  ![image alt](https://github.com/fqxxie/fqxxie/blob/main/download%20(6).jpeg?raw=true)
 
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀  *ੈ✩‧₊˚༺☆༻*ੈ✩‧₊˚
 
