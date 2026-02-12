@@ -1,6 +1,6 @@
  ⠀ ⠀ ⠀ ⠀  ⠀  ![image alt](https://github.com/fqxxie/fqxxie/blob/main/download%20(6).jpeg?raw=true)
 
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ''NEVER WANTED TO DANCE W/ NOBODY BUT U!
 ## ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀⠀♯ ⸝⸝ ꒰ A lil about me !! ꒱* 
 
  ⊱  ۫ ׅ ✧ *Hey! i'm foxie aka flynn! i go by Any/All pronouns cuz idgaf (but i do prefer they/him tho) and i'm a traditional artist! And as well i'm a Kemonomimi of a fox! i'm also a **heavy Elliot kinner** (especially the WAAPP one but frskn one too ig..), as well.. a cosplayer!! (my current cosplays are andrew from bad things & two time!)
