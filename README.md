@@ -3,7 +3,7 @@
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ''NEVER WANTED TO DANCE W/ NOBODY BUT U!
 ## ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀⠀♯ ⸝⸝ ꒰ A lil about me !! ꒱* 
 
- ⊱  ۫ ׅ ✧ *Hey! i'm foxie aka flynn! i go by Any/All pronouns cuz idgaf (but i do prefer they/him tho) and i'm a traditional artist! And as well i'm a Kemonomimi of a fox! i'm also a **heavy Elliot kinner** (especially the WAAPP one but frskn one too ig..), as well.. a cosplayer!! (my current cosplays are andrew from bad things & two time!)
+ ⊱  ۫ ׅ ✧ *Hey! i'm foxie aka flynn! i go by Any/All pronouns cuz idgaf (but i do prefer they/him tho) and i'm a traditional artist! And as well i'm a Kemonomimi of a fox! i'm also a **heavy Elliot kinner** (especially the WAAPP one but frskn one too ig..) & andrew from bad things too!!, as well.. a cosplayer!! (my current cosplays are andrew from bad things & two time!)
  ⟢ Also i'm a MINOR!! (under 18) So **DON'T** BE WEIRD ok?!?
  ⟢ I'm into roblox :3 also minecraft and FNF!! 
  ⟢ And i'm also an ispiring voice actor! i'm voicing my own projects and my friends' projects currently :D
